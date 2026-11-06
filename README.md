@@ -1,1 +1,1 @@
-https://cccarmean-tech.github.io/Stormy-s-special2/
+https://cccarmean-tech.github.io/Stormy-s-special/
